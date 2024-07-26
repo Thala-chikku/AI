@@ -1,0 +1,1 @@
+Yargu helbedi kanrapa
